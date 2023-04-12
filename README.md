@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Jh142857](https://github.com/Jh142857)
 
-- 📫 How to reach me **22232072@zju.edu.com**
+- 📫 How to reach me **22232072@zju.edu.cn**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
